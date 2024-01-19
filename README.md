@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JaredTzy16
+- 👋 Hi, I’m @Tzy16
 - 👀 I’m interested in minecraft
 - 🌱 I’m currently learning sycology
 - 💞️ I’m looking to collaborate on helping in game management
